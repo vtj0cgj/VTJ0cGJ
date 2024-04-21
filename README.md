@@ -4,5 +4,5 @@
 - I am looking for a repository to work on currently, any suggestions will be welcome.
 - I have interests in networking (but not web), desktop software development & anything that means I don't have to make a gui.
 - I daily drive Manjaro linux
-- I support open source.
+- FOSS
 - contact me at: vtj0cgj@outlook.com.
