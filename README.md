@@ -9,3 +9,9 @@
 
 Buy me a coffee, im starving
 https://buymeacoffee.com/vtj0cgj
+i also take crypto
+dogecoin:
+DJZKqyJNwU2nZMrGgWh1phLKtmf2ofkxxf
+
+Ethereum network
+0x2aac6d770eaab8c8f28b7cb5ec44e4aca448fb7c
