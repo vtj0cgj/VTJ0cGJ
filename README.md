@@ -12,7 +12,6 @@ https://buymeacoffee.com/vtj0cgj
 
 i also take crypto
 
-
 dogecoin network:
 DJZKqyJNwU2nZMrGgWh1phLKtmf2ofkxxf
 
