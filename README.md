@@ -5,6 +5,7 @@
 - I have interests in networking (but not web), desktop software development & anything that means I don't have to make a gui.
 - I daily drive Manjaro linux
 - FOSS
+- crypto🗿
 - contact me at: vtj0cgj@outlook.com
 
 
