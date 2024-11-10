@@ -5,9 +5,8 @@
 - I have interests in networking (but not web), desktop software development & anything that means I don't have to make a gui.
 - I daily drive Vanilla OS
 - FOSS
-- crypto🗿
+- $DOGE TO THE MOON
 - contact me at: vtj0cgj@outlook.com
-
 
 
 Buy me a coffee, im starving
